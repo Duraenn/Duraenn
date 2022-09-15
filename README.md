@@ -1,4 +1,4 @@
-**I am Durean.**
+**I am Dureann.**
 
 ----
 
@@ -16,5 +16,5 @@ The current spoken languages I know are:
 If you want to reach out to me for any reason (even for a chat), please contact me via discord:
 TR77#9967
 
-    -   Durean
+    -   Dureann
     S3CO
