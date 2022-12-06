@@ -14,8 +14,8 @@ The current spoken languages I know are:
 2. Japanese (Developing)
 3. Spanish (Basic)
 
-If you want to reach out to me for any reason (even for a chat), please contact me via discord:
-TR77#9967
+If you want to reach out to me for any reason (even for a chat), please contact me via discord: TR77#9967
+If you want to check out my music, search "Silver October" on Spotify/BandCamp
 
     -   Dureann
-    S3CO
+    Anti-Club
